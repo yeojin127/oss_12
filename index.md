@@ -9,7 +9,7 @@
 - 이름 : 장여진
 - 생년월일 : 2005.12.07 
 - 연락처 : 010-2856-9030
-- 메일 : ouoio2gi727@kw.ac.kr
+- 메일 : ouoio2727@kw.ac.kr
 - SNS : [@weoxinne](https://www.instagram.com/weoxinne)
 
 
